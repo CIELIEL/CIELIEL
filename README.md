@@ -17,5 +17,6 @@ Here are some ideas to get you started:
 Hi
 新学期终于和大家见面了！
 我叫李纪然
-努力学习吧
+爱车爱生活
+爱学习
 还有新学期希望增肥一点可以成功
